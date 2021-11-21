@@ -1,1 +1,1 @@
-![enter image description here](https://icon-library.com/images/imdb-icon-png/imdb-icon-png-15.jpg)
+![enter image description here](https://upload.wikimedia.org/wikipedia/commons/thumb/6/69/IMDB_Logo_2016.svg/640px-IMDB_Logo_2016.svg.png)
